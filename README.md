@@ -1,1 +1,1 @@
-# bijaygyawali70.github.io
+# bijayagyawali70.github.io
